@@ -70,4 +70,4 @@ To run locally:
 
 ## Contact
 
-For questions or support, contact Best Amount Enterprise at bestamountgh1@gmail.com or +233 54 767 1378.
+For questions or support, contact Best Amount Enterprise at bestamountgh1@gmail.com or +233 24 015 3841.
